@@ -1,1 +1,3 @@
-# .github
+# *Live in the Moment: Discover surprising spiritual facts to awaken your heart*
+## *Discover 15 rare, hidden truths about living in the moment that will inspire, surprise, and transform your life. Save this story. Share it with someone who needs to slow down. Follow for more soulful reminders to live with presence and purpose.* [More details…](https://spiritualkhazaana.com/web-stories/live-in-the-moment/) 
+## #MindfulLiving #SpiritualGrowth #BePresent #MotivationForTheSoul #LiveWithIntention #LiveInTheMoment #Mindfulness #SpiritualAwakening #liveinthemoment #mindfulness #spiritualgrowth #inspirationalquotes #motivationalwebstory #bepresent #mindfulliving #emotionalhealing #presenceoverproductivity #dailyinspiration #breathwork #selflove #joyinsimplicity #digitaldetox #mindfuleating #emotionalawareness #gratitudepractice #spiritualawakening #innerpeace #nowmoment
